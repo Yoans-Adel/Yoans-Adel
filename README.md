@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-
 <!---
 Yoans-Adel/Yoans-Adel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
@@ -22,11 +21,13 @@ Reading Books and Tutorial about programming ( Specially reading manga ) .<br>
 Also i love watching TV Series , Movies and Animes  
 - Religion : Christianity
 - Used to be Admin and Head Admin in Some Servers (specially in game servers (ZP)) Also used to be Demo Reviewer(Checker) and helper in some Communities . 
-hope u guys like my work 
+hope u guys like my work <br>
+\*
 _______________________________________{ Small Info }___________________________________
                                          śîńģĺê😌😎
                                         èģýptìãń  🇪🇬
                                        èģýpț,qéñá💖😍
                                     Still Studying  🧑🏻‍🎓🧑🏻‍🎓
                                    A Christian with pride⛪
-<br>____________________________________________________________________________________
+___________________________________________________________________________________________
+\*
