@@ -1,8 +1,10 @@
+<!---
 - 👋 Hi, I’m @Yoans-Adel
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
+--->
 <!---
 Yoans-Adel/Yoans-Adel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
@@ -23,7 +25,7 @@ Also i love watching TV Series , Movies and Animes
 - Used to be Admin and Head Admin in Some Servers (specially in game servers (ZP)) Also used to be Demo Reviewer(Checker) and helper in some Communities . 
 hope u guys like my work <br>
 
-<P>_______________________________________{ Small Info }___________________________________<br>
+<Pre>_______________________________________{ Small Info }___________________________________<br>
                                          śîńģĺê😌😎<br>
                                         èģýptìãń  🇪🇬<br>
                                        èģýpț,qéñá💖😍<br>
