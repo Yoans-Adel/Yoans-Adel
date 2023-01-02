@@ -23,11 +23,11 @@ Also i love watching TV Series , Movies and Animes
 - Used to be Admin and Head Admin in Some Servers (specially in game servers (ZP)) Also used to be Demo Reviewer(Checker) and helper in some Communities . 
 hope u guys like my work <br>
 
-_______________________________________{ Small Info }___________________________________
-                                         śîńģĺê😌😎
-                                        èģýptìãń  🇪🇬
-                                       èģýpț,qéñá💖😍
-                                    Still Studying  🧑🏻‍🎓🧑🏻‍🎓
-                                   A Christian with pride⛪
+<P>_______________________________________{ Small Info }___________________________________<br>
+                                         śîńģĺê😌😎<br>
+                                        èģýptìãń  🇪🇬<br>
+                                       èģýpț,qéñá💖😍<br>
+                                    Still Studying  🧑🏻‍🎓🧑🏻‍🎓<br>
+                                   A Christian with pride⛪<br>
 __________________________________________________________________________________________
    
