@@ -32,4 +32,16 @@ hope u guys like my work <br>
                                     Still Studying  🧑🏻‍🎓🧑🏻‍🎓<br>
                                    A Christian with pride⛪<br>
 __________________________________________________________________________________________
+
+
+  Yoans | AI Enthusiast | Computer Science Student | Founder of AtechI
+
+👨‍💻 Computer Science student at HIMIT (2025 Graduate) | Passionate about AI, Machine Learning, Deep Learning, and Computer Vision
+💡 Founder of AtechI, an AI-focused company specializing in cybersecurity and technological advancements
+🤖 Experienced in predictive maintenance, error detection, and system optimization
+💼 Hands-on expertise in deep learning, Python, C++, Java, Flutter, SQL, and hardware integration with Arduino and Raspberry Pi
+🌱 Strong interest in AI applications for sustainability and smart technologies
+📚 Advocate for sharing knowledge through online platforms like TikTok and YouTube
+🌍 Fluent in Arabic and English | Working knowledge of Chinese, Turkish, Ukrainian, Russian, and Hindi
+  
    
